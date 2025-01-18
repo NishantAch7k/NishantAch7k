@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **nishantach177k@gmail.com**
 
-- ⚡ Fun fact **I am a part time Sound Healing & Therapy teacher**
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
